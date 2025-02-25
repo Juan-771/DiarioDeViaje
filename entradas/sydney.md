@@ -6,3 +6,5 @@ Sídney es catalogada como una de las 15 ciudades más visitadas del mundo, con 
 ## Recomendación
 Visita Opera de Sidney
 
+## Foto
+![] (https://lh3.googleusercontent.com/p/AF1QipMHftgSCBlvyjxYphi4gLqDC_62WWvZvyy1EBuh=s680-w680-h510-rw)
