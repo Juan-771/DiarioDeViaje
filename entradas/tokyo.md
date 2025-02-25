@@ -6,3 +6,7 @@ Como capital de Japón y metrópolis más poblada del mundo, Tokio ofrece tradic
 ## Recomendación
 visitar Museo Nacional de Tokio.
 
+## Foto
+[(https://www.google.com/url?sa=i&url=https%3A%2F%2Fsupplier-studio.com%2Fes%2Fdiscover-the-soul-of-japan-at-tokyo-national-museum%2F&psig=AOvVaw3APQIWRpcAefF2vdu9HRjK&ust=1740575007120000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCMCd2Knx3osDFQAAAAAdAAAAABAE)]
+
+
